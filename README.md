@@ -1,0 +1,1 @@
+Friday ad creative plan
